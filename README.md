@@ -7,7 +7,7 @@ retrospring gonna fuckin' die... made an atabook or whatever instead
 
 <a href="https://imgbb.com/"><img src="https://i.ibb.co/KN2Xt2k/postal-dude-postal-2-1.gif" alt="postal-dude-postal-2-1" border="0"></a>
 
-<h4><img src="https://i.ibb.co/Lt9H2Vr/dvdslot.gif"/><h4>
+<img src="https://i.ibb.co/Lt9H2Vr/dvdslot.gif"/>
 
 <a href="https://imgbb.com/"><img src="https://i.ibb.co/18jtTpM/V2-Trans-1-2.png" alt="V2-Trans-1-2" border="0"></a>  <a href="https://imgbb.com/"><img src="https://i.ibb.co/BZq5Wrc/Leon-Kennedy-Resident-Evil-h2-big-removebg-preview-1.png" alt="Leon-Kennedy-Resident-Evil-h2-big-removebg-preview-1" border="0"></a>
 
