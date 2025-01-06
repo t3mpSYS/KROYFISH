@@ -5,7 +5,7 @@ whispering is the best way to get ahold of me. ![](https://komarev.com/ghpvc/?us
 ***
 
 retrospring gonna fuckin' die... made an atabook or whatever instead
-
+just real big on x-men and skyrim that's all you gotta know
 
 <img src="https://i.ibb.co/Lt9H2Vr/dvdslot.gif"/>
 
