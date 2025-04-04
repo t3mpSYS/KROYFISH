@@ -6,7 +6,8 @@ whispering is the best way to get ahold of me. ![](https://komarev.com/ghpvc/?us
 
 retrospring gonna fuckin' die... made an atabook or whatever instead
 
-i'm an artist that draws whatever you can confirm that theory over <a href="[url](https://www.instagram.com/kroyfisher?igsh=MThoNWFiNWdxN3EyYw==)">here</a> 
+i'm an artist that draws whatever you can confirm that theory over
+<a href="[url](https://www.instagram.com/kroyfisher?igsh=MThoNWFiNWdxN3EyYw==)">here</a> 
 just real big on x-men and skyrim that's all you gotta know
 
 <img src="https://i.ibb.co/Lt9H2Vr/dvdslot.gif"/>
